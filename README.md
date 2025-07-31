@@ -13,7 +13,9 @@ Better menu
 
 ## Contact ##
 
-Balazs#7202
+Discord: Balazs#7202
+
+
 
 
 
